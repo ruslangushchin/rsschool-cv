@@ -1,7 +1,7 @@
 ## Ruslan Gushchin
 # Contact information:
 * **Phone number:** 79267889214
-* **Email:** ruslangushchin9892@gmail.con
+* **Email:** ruslangushchin9892@gmail.com
 * **Telegram:** @vodasneg
 
 # About me
